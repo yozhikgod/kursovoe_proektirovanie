@@ -1,1 +1,0 @@
-# kursovoe_proektirovanieasd
